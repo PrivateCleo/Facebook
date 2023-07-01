@@ -2,4 +2,4 @@
 ![alt text](https://github.com/PrivateCleo/Facebook/blob/main/.github/ISSUE_TEMPLATE/InShot_20230529_194229703.jpg?raw=true)
 
 ### Information ###
-Script for sell for Publik , Buy [Click Here](https://t.me/@cartheo)
+Script for sell for Publik , Buy [Click Here](https://t.me/cartheo)
